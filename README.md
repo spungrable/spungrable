@@ -1,3 +1,2 @@
-yoyoyo im a box of macaroni and cheese made by kraft except its shaped like spongebob
+yoyoyo i'm a cool freakin' rat who does hotdog eating competitions my duderino
 i like pizza tower
-and im spongebob
